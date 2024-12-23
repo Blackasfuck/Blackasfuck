@@ -1,1 +1,1 @@
-hate niggers
+nate higgers
